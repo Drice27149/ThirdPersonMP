@@ -8,6 +8,7 @@
 #### app和演示视频
 
 * [演示视频链接](https://pan.baidu.com/s/12VeMLM39Tw6oQpuZqhX0Mw), 提取码: swnx
+* [apk链接](https://pan.baidu.com/s/1xchUwp2Zx55AifL1jhJb7Q), 提取码: rgap
 
 #### 游戏流程
 
